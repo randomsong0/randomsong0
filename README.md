@@ -1,4 +1,4 @@
-# RandomSong: Discover Your Next Favorite Song, Randomly!
+# RandomSong: Random Song Generator, Best Ever Never. 
 
 **Tired of algorithms dictating your music taste? Dive into a universe of unexpected musical gems with RandomSong – the ultimate random song generator!**
 
