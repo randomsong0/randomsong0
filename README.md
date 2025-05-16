@@ -1,4 +1,4 @@
-# RandomSong: Random Song Generator, Best Ever Never. 
+# RandomSong: Discover Your Next Favorite Song, Randomly!
 
 **Tired of algorithms dictating your music taste? Dive into a universe of unexpected musical gems with RandomSong – the ultimate random song generator!**
 
@@ -61,11 +61,19 @@ Ready to break your listening habits and discover a world of music you never kne
 - [kcd2](https://kcd2.org/)
 - [pet-to-human](https://pet-to-human.com/)
 - [nailgenie](https://nailgenie.org/)
+- [bricalculator](https://bri-calculator.com/)
+- [pokemontcgpocket](https://pokemontcgpocket.app/)
+- [marszeichenberechnen](https://marszeichenberechnen.com/)
+- [unblockedescaperoads](https://unblockedescaperoads.com/)
+- [oag](http://webinars.oag.com/)
+- [producthuntdaily](https://producthuntdaily.com/product-hunt-daily-2025-05-12-en/)
+- [fmhy](https://fmhy.xyz/audiopiracyguide/)
 - [producthunt](https://www.producthunt.com/products/randomsong/)
 - [saashub](https://www.saashub.com/randomsong-alternatives)
 - [alternativeto](https://alternativeto.net/software/randsong/about/)
 - [bento](https://bento.me/free-music/)
 - [huntscreens](https://huntscreens.com/en/products/randomsong/)
+- [ez](https://ez.lol/ls)
 - [wix](https://nl.wix.com/blog/post/15-toffe-wix-website-voorbeelden-die-je-inspireren)
 - [googleblog](https://developers-id.googleblog.com/2023/03/vidio-perkuat-kesuksesannya-di.html)
 - [xrea](http://eivissa.s3.xrea.com/ClubSantAntoni/?no=7785/)
@@ -77,7 +85,7 @@ Ready to break your listening habits and discover a world of music you never kne
 - [videomarketingplatform](https://1dsq8r.videomarketingplatform.co/masterclass-e-mail-copywriting-1)
 - [substack](https://thelandofrandom.substack.com/p/medieval-jams-lofone-dreams-and-rube)
 - [hypebot](https://www.hypebot.com/hypebot/2025/05/viral-isnt-valuable-why-artists-struggle-with-algorithms.html?unapproved=61925&moderation-hash=cc36286dc305cf1c17126a546a41b1f8#comment-61925)
-- [ez](https://ez.lol/ls)
+
 
 
 
