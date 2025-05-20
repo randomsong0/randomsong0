@@ -94,7 +94,13 @@ Ready to break your listening habits and discover a world of music you never kne
 - [hi-hyperlite](https://community.hi-hyperlite.com/showthread.php?tid=74&pid=4218)
 - [leadoo](https://webinar.leadoo.com/kan-du-grunderna-i-1)
 - [journal-theme](www.journal-theme.com/1/blog/season-essentials)
-
+- [poradna](https://pc.poradna.net/flashes/3004116-linux-ve-windows-umi-gui-aplikace)
+- [indianjadibooti](https://indianjadibooti.com/Jadistore/blog-headlines/%E0%A4%B6%E0%A4%BF%E0%A4%B2%E0%A4%BE%E0%A4%9C%E0%A5%80%E0%A4%A4-%E0%A4%95%E0%A5%87-%E0%A4%AA%E0%A5%8D%E0%A4%B0%E0%A5%80-%E0%A4%B5%E0%A4%B0%E0%A5%8D%E0%A4%95%E0%A4%86%E0%A4%89%E0%A4%9F-%E0%A4%B8%E0%A4%AA%E0%A5%8D%E0%A4%B2%E0%A5%80%E0%A4%AE%E0%A5%87%E0%A4%82%E0%A4%9F-%E0%A4%95%E0%A5%87-%E0%A4%B0%E0%A5%82%E0%A4%AA-%E0%A4%AE%E0%A5%87%E0%A4%82-%E0%A4%AB%E0%A4%BE%E0%A4%AF%E0%A4%A6%E0%A5%87-%E0%A4%AC%E0%A5%8D%E0%A4%B2%E0%A5%89%E0%A4%97)
+- [letsknowit](https://www.letsknowit.com/mahtari-vandana-yojanain-which-state)
+- [siapabilang](https://siapabilang.com/buku-acs-robinson-crusoe/wall/)
+- [farming](https://farming-mods.com/news/vydelennye_servera_i_prilozhenija/2018-07-14-33)
+- [mydns](http://xinn.mydns.jp/snapblog/diary/class/20081129_02.htm)
+- [videomarketingplatform](https://quickcoop.videomarketingplatform.co/65b4e73be646f)
 - [chatgpt](https://chatgpt.com/share/6826ce06-1f1c-800b-8ea6-b3ebe2241f34)
 
 
