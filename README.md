@@ -75,6 +75,7 @@ Ready to break your listening habits and discover a world of music you never kne
 - [huntscreens](https://huntscreens.com/en/products/randomsong/)
 - [ez](https://ez.lol/ls)
 - [wix](https://nl.wix.com/blog/post/15-toffe-wix-website-voorbeelden-die-je-inspireren)
+- [pitchwall](https://pitchwall.co/product/random-song-generator)
 - [googleblog](https://developers-id.googleblog.com/2023/03/vidio-perkuat-kesuksesannya-di.html)
 - [xrea](http://eivissa.s3.xrea.com/ClubSantAntoni/?no=7785/)
 - [archivists](https://www2.archivists.org/statements/saa-council-statement-on-black-lives-and-archives#comment-7994)
@@ -85,7 +86,16 @@ Ready to break your listening habits and discover a world of music you never kne
 - [videomarketingplatform](https://1dsq8r.videomarketingplatform.co/masterclass-e-mail-copywriting-1)
 - [substack](https://thelandofrandom.substack.com/p/medieval-jams-lofone-dreams-and-rube)
 - [hypebot](https://www.hypebot.com/hypebot/2025/05/viral-isnt-valuable-why-artists-struggle-with-algorithms.html?unapproved=61925&moderation-hash=cc36286dc305cf1c17126a546a41b1f8#comment-61925)
+- [utahtech](https://donate.utahtech.edu/page.aspx?dgs980=3&pid=305&rid980=620&tid980=87)
+- [enseeiht](https://cavale.enseeiht.fr/redmine/issues/1638)
+- [nimuoro](https://www.nimuoro.com/hpgen/HPB/entries/34.html)
+- [highlite](https://forum.highlite.com/showthread.php?tid=1831&pid=4682)
+- [city](https://www.city.fi/blogit/pinthefuckups/kalpeanaama+torilla+ja+muita+kertomuksia/124511/sivu-2)
+- [hi-hyperlite](https://community.hi-hyperlite.com/showthread.php?tid=74&pid=4218)
+- [leadoo](https://webinar.leadoo.com/kan-du-grunderna-i-1)
+- [journal-theme](www.journal-theme.com/1/blog/season-essentials)
 
+- [chatgpt](https://chatgpt.com/share/6826ce06-1f1c-800b-8ea6-b3ebe2241f34)
 
 
 
