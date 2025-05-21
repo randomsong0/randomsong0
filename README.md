@@ -101,8 +101,18 @@ Ready to break your listening habits and discover a world of music you never kne
 - [farming](https://farming-mods.com/news/vydelennye_servera_i_prilozhenija/2018-07-14-33)
 - [mydns](http://xinn.mydns.jp/snapblog/diary/class/20081129_02.htm)
 - [videomarketingplatform](https://quickcoop.videomarketingplatform.co/65b4e73be646f)
+- [sciforum](https://sciforum.net/paper/view/17470)
+- [yarnharlot](https://www.yarnharlot.ca/2024/11/the-state-of-things-34-days/)
+- [archivists](https://www2.archivists.org/news/2021/saa-remembers-william-l-joyce)
+- [tunastoyota](https://www.tunastoyota.com/post/piringan-cakram-mobil-fungsi-perawatan-dan-tips-memilih-yang-tepat)
+- [philosophytalk](https://www.philosophytalk.org/blog/borges-philosopher)
+- [belleisleconservancy](https://www.belleisleconservancy.org/post/baltimore-checkerspot)
+- [highpoint](https://www.highpoint-tech.com/post/mastering-nvme-hot-plug-navigating-challenges-and-ensuring-safe-removal)
+- [industryarena](https://en.industryarena.com/forum/showthread.php?t=457780&p=2615069#post2615069)
+- [buttondown](https://buttondown.com/mrchrismead/archive/158-trolls-and-robots/)
+- [hyperlite](https://community.hi-hyperlite.com/showthread.php?tid=74&pid=4223)
+- [leadoo](https://webinar.leadoo.com/hur-du-gor-din-webbplats-till-er-3)
 - [chatgpt](https://chatgpt.com/share/6826ce06-1f1c-800b-8ea6-b3ebe2241f34)
-
 
 
 ---
