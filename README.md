@@ -112,6 +112,11 @@ Ready to break your listening habits and discover a world of music you never kne
 - [buttondown](https://buttondown.com/mrchrismead/archive/158-trolls-and-robots/)
 - [hyperlite](https://community.hi-hyperlite.com/showthread.php?tid=74&pid=4223)
 - [leadoo](https://webinar.leadoo.com/hur-du-gor-din-webbplats-till-er-3)
+- [wind](http://www3.wind.ne.jp/snowbravo/gesc_cgi/diarypro/diary.cgi?no=164)
+- [23video](https://tvhaugaland.23video.com/cafe-rene-i-ny-drakt)
+- [videomarketingplatform](https://1dsq8r.videomarketingplatform.co/masterclass-e-mailmarketing-for-1)
+- [cloud](https://iubungei.cloud-line.com/comment/2019/06/97653/)
+- [philosophytalk](https://www.philosophytalk.org/blog/creepy-converts-and-pugnacious-priests#comment-15047)
 - [chatgpt](https://chatgpt.com/share/6826ce06-1f1c-800b-8ea6-b3ebe2241f34)
 
 
