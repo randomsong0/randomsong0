@@ -141,6 +141,16 @@ Ready to break your listening habits and discover a world of music you never kne
 - [golden](https://golden-forum.com/memberlist.php?first_char=g&start=5350)
 - [fasagames](https://fasagames.com/forum/viewtopic.php?f=43&t=557&p=22681#p22681)
 - [granicusideas](https://denver.granicusideas.com/ideas/need-ready-made-guided-meditation-audios)
+- [changeyourenergy](https://www.changeyourenergy.com/community/blogdetail.aspx?id=2824)
+- [cal](https://cal.com/best-app-list)
+- [promoteproject](https://www.promoteproject.com/public/tag/youtube)
+- [peerlist](https://peerlist.io/bestapp/project/random-song-generator)
+- [womoblog](https://www.womoblog.ch/Blog/Meistgelesen/Meinung-4.25t/1843/#)
+- [ufba](https://noosfero.ufba.br/shoka/blog/introducing-some-wind-instruments)
+- [puglia](https://edottosgd.sanita.puglia.it/knowledgetree/action.php?action=viewThread&fDocumentId=16186&fThreadId=240&kt_path_info=ktcore.actions.document.discussion)
+- [paragon-software](https://developers.paragon-software.com/community/profile/author/)
+- [or](http://www.kt.rim.or.jp/~youie/cgi-bin/nanmeri/nanmeri.cgi?no=239)
+- [lingvolive](https://www.lingvolive.com/pt-br/community/posts/1501343)
 
 
 ---
