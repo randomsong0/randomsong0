@@ -165,6 +165,16 @@ Ready to break your listening habits and discover a world of music you never kne
 - [solanotogether](https://www.solanotogether.org/post/poll-shows-solano-county-voters-overwhelmingly-reject-california-forever-solano-together-calls-for)
 - [namestajmark](https://www.namestajmark.rs/blog/vacation-time)
 - [thebatteryshop](https://www.thebatteryshop.gr/blog/another-blog-post)
+- [co](https://o-ki.co.jp/hpgen/HPB/entries/71.html)
+- [karuizawa](https://www.karuizawa-kinari.com/hpgen/HPB/entries/144.html)
+- [keio](https://bosai.sfc.keio.ac.jp/post/20200508_preparation7)
+- [systm](https://www.systm.co/post/how-do-you-measure-brand-building)
+- [ihtiyacinolanial](https://www.ihtiyacinolanial.com/blog/best-beauty-products)
+- [iccds](https://www.iccds.hku.hk/post/fieldtrip-2023-2024)
+- [amysantee](https://www.amysantee.com/post/what-the-heck-is-going-on-with-the-ux-job-market)
+- [yonsei](https://www.bk21pol.yonsei.ac.kr/post/2024-summer-intensive-course)
+- [speedrun](https://www.speedrun.com/posts/s9h10)
+- [metcircle2023](https://www.metcircle2023.pwr.edu.pl/post/seminarium-spektrometria-mas-nowa-epoka-w-analizie-danych-omicznych)
 
 
 ---
