@@ -175,6 +175,17 @@ Ready to break your listening habits and discover a world of music you never kne
 - [yonsei](https://www.bk21pol.yonsei.ac.kr/post/2024-summer-intensive-course)
 - [speedrun](https://www.speedrun.com/posts/s9h10)
 - [metcircle2023](https://www.metcircle2023.pwr.edu.pl/post/seminarium-spektrometria-mas-nowa-epoka-w-analizie-danych-omicznych)
+- [joshuaweissman](https://www.joshuaweissman.com/post/perfect-homemade-pastrami)
+- [isct](https://ocrd.citl.isct.ac.jp/post/video-production-guest-lecture-by-hiroki-sensei)
+- [highpoint-tech](https://www.highpoint-tech.com/post/e1-s-form-factor-thickness)
+- [hawaaworld](https://hawaaworld.com/%D8%AC%D8%AF%D9%88%D9%84_%D8%A8%D8%AF%D9%88%D9%86_%D8%A7%D8%AE%D9%81_%D9%81%D8%B9%D8%A7%D9%84-5110156/page/3)
+- [tunastoyota](https://www.tunastoyota.com/post/sudah-tau-definisi-mekanik-yuk-kenali-pekerjaan-yang-satu-ini)
+- [mediaid](https://www.mediaid-online.jp/hpgen/HPB/entries/108.html)
+- [zeusx](https://www.blog.zeusx.com/post/pacsun-celebrates-anniversary-on-roblox-with-slick-rick-a-fusion-of-fashion-music-and-virtual-inn)
+- [onoff](https://www.blog.onoff.app/post/teams-s-ouvre-aux-sms-gr%C3%A2ce-%C3%A0-onoff-business-1)
+- [acpl](https://www.acpl.lib.in.us/post/storyscape-early-learning-space-opens-at-acpl-s-pontiac-branch)
+
+
 
 
 ---
