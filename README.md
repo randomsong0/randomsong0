@@ -199,7 +199,17 @@ Ready to break your listening habits and discover a world of music you never kne
 - [tulsapolice](https://www.tulsapolice.org/post/free-motorcycle-skills-course-classes-underway)
 - [svmeppen](https://www.svmeppen.de/post/extrem-wichtig-toptorj%C3%A4ger-marek-janssen-verl%C3%A4ngert-beim-sv-meppen)
 - [starbuds](https://www.starbuds.us/single-post/q-a-with-a-cannabis-grower)
-
+- [shellmuseum](https://www.shellmuseum.org/post/shell-of-the-week-the-disk-dosinia)
+- [preservation](https://www.sega-dreamcast-info-games-preservation.com/en/post/l-european-sonic-speed-challenge-avec-%C3%A0-la-cl%C3%A9-une-borne-dreamcast-au-couleur-de-sonic-%C3%A0-gagner-6)
+- [sagaeya](https://www.sagaeya.co.jp/hpgen/HPB/entries/38.html)
+- [pattis1880s](https://www.pattis1880s.com/post/patti-s-bbq-sloppy-joes)
+- [mysticfallstours](https://www.mysticfallstours.com/single-post/next-big-event)
+- [maxmarafashiongroup](https://www.maxmarafashiongroup.com/post/marella-%C3%A0-paris-1?lang=en)
+- [goodstone](https://www.goodstone.com/post/crafting-culinary-delights-the-history-goodstone-inn-s-conservatory)
+- [theyummymuffin](https://www.theyummymuffin.com/single-post/christmas-cheese-trees)
+- [matthewcwinner](https://www.matthewcwinner.com/post/the-first-gift-you-re-given-with-lesl%C3%A9a-newman-and-susan-gal)
+- [bigmcasino](https://www.bigmcasino.com/post/win-a-cruise)
+- [assens](https://video.assens.dk/bornehaven-i-bornehuset-haarby)
 
 
 ---
